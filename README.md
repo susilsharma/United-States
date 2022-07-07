@@ -14,7 +14,7 @@ The U.S. Mr. F. President Donald j. Trump Sir Want to receive me it's Oct 20 ele
 
 Bangladesh Opposite Party & Police Department stuck me, not moving abroad, Control everything, Counting my foot every second, Tracking, recording and listen voice 2 Simcard illegally & Secretly. And running government Minister, MP, Secretary Sir response them, Not me. It's corruption society.
 
-Before tell you - I saw a 1 beautyful girl in U.S. Embassy staff family on the road side suddenly oneday like 12:00 pm. She is like age 18 or 20 year.  And I want to married her if her parent except me. look Bangladesh billions of girl want marry me. I don`t. 
+Before tell you - I saw a 1 beautyful girl in U.S. Embassy staff family on the road side suddenly oneday like 12:00 pm. She is like age 18 or 20 year.  And I want to married her if her parent except me. look Bangladesh billions of girl want marry me. I don`t. First of all - need help. So alone, lost father.
 
 Have a nice night.
 
